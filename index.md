@@ -2,7 +2,7 @@
 title: "Mahamud Hasan Asif"
 ---
 2049516197 <br/>
-a.d.asif92@gmail.com <br/>
+- a.d.asif92@gmail.com 
 77 University Cr. Winnipeg , Manitoba, Canada.
 
 ## Objective
